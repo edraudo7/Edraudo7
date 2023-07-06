@@ -4,8 +4,8 @@ Me chamo **Cauã Eduardo Morais da Silva** :smile_cat_:
 
 Tenho alguns cursos como:
 
-![_Informática básica_]
-![Inglẽs básico_]
+_Informática básica_
+_Inglẽs básico_
 
 Sou _brasileiro_, nasci e cresci em _Campo Mourão - PR_ :brazil:
 
