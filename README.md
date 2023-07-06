@@ -2,7 +2,7 @@
 
 Me chamo **Cauã Eduardo Morais da Silva** :smile_cat_:
 
-# Sou aluno do Colégio Cívico Mílitar Darcy José Costa
+ Sou aluno do Colégio Cívico Mílitar Darcy José Costa
 
 Tenho alguns cursos como:
 
