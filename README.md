@@ -1,6 +1,6 @@
 # Olá! :cat2:
 
-Me chamo **Cauã Eduardo Morais da Silva** :smile_cat_
+Me chamo **Cauã Eduardo Morais da Silva** :smile_cat_:
 
 Tenho alguns cursos como:
 
