@@ -32,4 +32,4 @@ Minha língua nativa é o português :brazil:
 
 Meu hobby preferido é tocar piano :musical_keyboard: e gosto de todos os sabores de pizza!
 
-Dou-te boas-vindas ao meu GitHub.
+Dou-te boas-vindas ao meu GitHub
